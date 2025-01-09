@@ -9,6 +9,6 @@ like VS Code.
 ### _Fun Fact_
 
 - I am like a hardcover book full of funny stories 😅.
-- when coding confuse me 👨‍💻 I just cooking or making a cup of tea 👩‍🍳😋.
+- when coding confuse me I just cooking or making a cup of tea 👩‍🍳😋.
 
 ## **Bye** 👋
